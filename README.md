@@ -1,1 +1,1 @@
-Bu gerçek
+Bu gerçek 2
